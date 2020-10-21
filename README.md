@@ -4,6 +4,8 @@
 My hobbies 
 * Sleeping
 * Watching youtube
+* Dancing
+* Eating
 
 My education
 * Kong Hwa School
